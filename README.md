@@ -1,3 +1,3 @@
 # belajar-kolaborasi
-
-balajar kolaborasi dari dicoding
+belajar kolaborasi dari dicoding
+coding asik dan menyenangkan
